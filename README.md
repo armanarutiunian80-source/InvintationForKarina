@@ -1,2 +1,0 @@
-# InvintationForKarina
-A special invintation 
